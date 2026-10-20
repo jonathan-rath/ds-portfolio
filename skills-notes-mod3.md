@@ -34,3 +34,5 @@ Skills in Both Postings
 
 Bachelor's degree
 Understanding of business context
+
+What stood out to me is that despite being totally different careers they required many of the same skills that included lots about having a good understanding of business relations. They both included many of the NACE competencies in their preferred skills showing that those skills are what companies want for their prospective hires.
